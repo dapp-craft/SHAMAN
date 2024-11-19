@@ -27,4 +27,4 @@ SHAMAN AIgent is scaling Eliza capabilities for Metaverses, virtual worlds and S
 ## Get in touch
 
 🧿 **SHAMAN** [@SHAMAN_AIgent](https://x.com/SHAMAN_AIgent)  
-👾 **Discord:** [dappcraft.io](https://discord.gg/gjFfrSYjXS)
+👾 **Discord:** [DAPPCRAFT Discord](https://discord.gg/gjFfrSYjXS)
